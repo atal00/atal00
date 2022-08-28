@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @atal
+- 👋 Hi, I’m @atalkumar
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in collage
 - 💞️ I’m looking to collaborate on 
